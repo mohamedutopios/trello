@@ -1,0 +1,4 @@
+- Marco : aijjou@proton.me
+- Tom : formation-utopios@proton.me
+- Jim : formation1-utopios@proton.me
+- Lola : formation2-utopios@proton.me
